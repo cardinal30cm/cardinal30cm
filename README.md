@@ -1,7 +1,7 @@
 - 👋  olá eu sou o arthur 
 - 👀  sou palmeirense sofredor 
 - 🌱  eu planto mandioca 
-- 💞️  eu amo cair em bima e dar três capas e tacar gelo agachado 
+- 💞️  eu amo jogar futebol e jogar free fire  
 - 📫  capanema paraná  
 <!---
 cardinal30cm/cardinal30cm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
